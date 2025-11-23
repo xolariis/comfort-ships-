@@ -6,7 +6,7 @@
 
      
      helloo, small intro ! I'm xolar
-     / xolaris , often offtab / with 
+     / xolaris , often offtab or with 
      party but feel free to c + h &
      int ! I have adhd and bpd, so
      I apologize if I act differently

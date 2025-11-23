@@ -4,11 +4,11 @@
   </a>
 </p>
 
-    ⏜︵⊹︵⏜︵୨ `✦` ୧︵⏜︵⊹︵⏜
-    xolar/xolaris     any/all prns !
+     ⏜︵⊹︵⏜︵୨ `✦` ୧︵⏜︵⊹︵⏜
+     xolar/xolaris     any/all prns !
  
-    pdt timezone        freely c+h 
-    ⏝︶⊹︶⏝︶୨ `✦` ୧︶⏝︶⊹︶⏝
+     pdt timezone        freely c+h 
+     ⏝︶⊹︶⏝︶୨ `✦` ୧︶⏝︶⊹︶⏝
 
     ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀comfort ships ! ⠀ ◞
 

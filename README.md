@@ -4,7 +4,7 @@
   </a>
 </p>
 
-     ⏜︵⊹︵⏜︵୨ `✦` ୧︵⏜︵⊹︵⏜
+     
      helloo, small intro ! I'm xolar
      / xolaris , often offtab / with 
      party but feel free to c + h &
@@ -12,7 +12,7 @@
      I apologize if I act differently
      at times. basic dni, (racism -
      homophobia, ect. ) that's all ♡
-     ⏝︶⊹︶⏝︶୨ `✦` ୧︶⏝︶⊹︶⏝
+
 
 ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀comfort ships ! ⠀ ◞
 

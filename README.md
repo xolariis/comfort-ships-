@@ -5,11 +5,14 @@
 </p>
 
      ⏜︵⊹︵⏜︵୨ `✦` ୧︵⏜︵⊹︵⏜
-     xolar/xolaris     any/all prns !
- 
-     pdt timezone        freely c+h 
+     helloo, small intro ! I'm xolar
+     / xolaris , often offtab / with 
+     party but feel free to c + h &
+     int ! I have adhd and bpd, so
+     I apologize if I act differently
+     at times. basic dni, (racism -
+     homophobia, ect. ) that's all ♡
      ⏝︶⊹︶⏝︶୨ `✦` ୧︶⏝︶⊹︶⏝
-
 
     ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀comfort ships ! ⠀ ◞
 

@@ -3,7 +3,14 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31riu7osrp7skodna7ewqr7gy6na&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
-ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀comfort ships ! ⠀ ◞
+    ⏜︵⊹︵⏜︵୨ `✦` ୧︵⏜︵⊹︵⏜
+    xolar/xolaris     any/all prns !
+ 
+    pdt timezone        freely c+h 
+    ⏝︶⊹︶⏝︶୨ `✦` ୧︶⏝︶⊹︶⏝
+
+    ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀comfort ships ! ⠀ ◞
+
 
 ![dcfc5788ae00b637fe07a9c1b9ef5c6b.jpg](https://github.com/user-attachments/assets/3598f83c-3127-467f-b263-349bf9749cf8)
 　⸻　 𝑠𝑑𝑣𝑛  ⸝   𝑡𝑟𝑢𝑡𝔥𝑙𝑒𝑠𝑠𝑎𝑔𝑒 ⸝  𝔥𝑒𝑎𝑙𝑒𝑟𝑓𝑜𝑢𝑛𝑡` INT!

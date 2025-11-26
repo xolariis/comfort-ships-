@@ -14,14 +14,14 @@
         my patreon linked on here ^_^
 
 
-ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀comfort ships ! ⠀ ◞
+ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀ ! ⠀ ◞
 
 
 ![dcfc5788ae00b637fe07a9c1b9ef5c6b.jpg](https://github.com/user-attachments/assets/3598f83c-3127-467f-b263-349bf9749cf8)
-　⸻　 𝑠𝑑𝑣𝑛  ⸝   𝑡𝑟𝑢𝑡𝔥𝑙𝑒𝑠𝑠𝑎𝑔𝑒 ⸝  𝔥𝑒𝑎𝑙𝑒𝑟𝑓𝑜𝑢𝑛𝑡` INT!
+　⸻　 shadowvanilla ` ♡
 
 ![6f0e0dd6daa9c55f80803a069eba7a0a.jpg](https://github.com/user-attachments/assets/24840deb-070f-438a-a6d6-738455c71f77)
-⸻　 𝑝𝑟𝑖𝑑𝑒𝑑𝑢𝑜 ⸝  `
+⸻　   prideduo  ` ♡
 
 
 ಿৎ ֯ ̣̣̥ ̣ ۫ ִ ⠀::⠀ ! ⠀ ◞ ⠀(* >ω<)

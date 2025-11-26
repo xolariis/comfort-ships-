@@ -6,6 +6,7 @@
 .　　　˚　　　₊　　　⊹　　　⁺　　　₊　　　.
 
 
+
      
       helloo, small intro ! I'm xolar/
        xolaris , any & all pronouns ! 
